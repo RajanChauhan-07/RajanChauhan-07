@@ -32,11 +32,11 @@ Thank you for joining this poetic tale,
 Where quirkiness and coding together prevail.
 Embrace the adventure, let your brilliance unfurl,
 As we code, create, and change the world. 🚀
-Email: hello@rajanchauhan.net
-LinkedIn: I don't Use
-Twitter: @HeyyRajan
-Instagram: Will Update Soon
-Website: www.rajanchauhan.net 
+✉️Email: hello@rajanchauhan.net |
+🖇️LinkedIn: I don't Use |
+❄️Twitter: @HeyyRajan |
+🍷Instagram: @rajanchauhan____ |
+🕸️Website: www.rajanchauhan.net |
 <!---
 RajanChauhan-07/RajanChauhan-07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
